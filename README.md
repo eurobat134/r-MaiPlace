@@ -1,2 +1,2 @@
 # r-MaiPlace
-Mai Is Best Girl
+Mai Best Girl
